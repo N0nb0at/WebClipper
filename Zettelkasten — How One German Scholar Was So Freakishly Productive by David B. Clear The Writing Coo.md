@@ -1,42 +1,6 @@
 # Zettelkasten — How One German Scholar Was So Freakishly Productive | by David B. Clear | The Writing Cooperative
 [Zettelkasten — How One German Scholar Was So Freakishly Productive | by David B. Clear | The Writing Cooperative](https://writingcooperative.com/zettelkasten-how-one-german-scholar-was-so-freakishly-productive-997e4e0ca125) 
 
- [
-
-![](https://github.com/N0nb0at/WebClipperImage/blob/main/2023-4-3%2010-15-49/a188afb0-d5a3-4530-8c2c-244932533046.jpeg?raw=true)
-
-
-
-](https://davidbclear.medium.com/?source=post_page-----997e4e0ca125--------------------------------)
-
-[
-
-David B. Clear
-
-](https://davidbclear.medium.com/?source=post_page-----997e4e0ca125--------------------------------)
-
-[Follow](https://medium.com/m/signin?actionUrl=https%3A%2F%2Fmedium.com%2F_%2Fsubscribe%2Fuser%2F6c268c2ef0e1&operation=register&redirect=https%3A%2F%2Fwritingcooperative.com%2Fzettelkasten-how-one-german-scholar-was-so-freakishly-productive-997e4e0ca125&user=David+B.+Clear&userId=6c268c2ef0e1&source=post_page-6c268c2ef0e1----997e4e0ca125---------------------follow_byline-----------)
-
-Dec 31, 2019
-
-·
-
-21 min read
-
-·
-
-Member-only
-
-·
-
-Listen
-
-[
-
-Save
-
-](https://medium.com/m/signin?actionUrl=https%3A%2F%2Fmedium.com%2F_%2Fbookmark%2Fp%2F997e4e0ca125&operation=register&redirect=https%3A%2F%2Fwritingcooperative.com%2Fzettelkasten-how-one-german-scholar-was-so-freakishly-productive-997e4e0ca125&source=--------------------------bookmark_header-----------)
-
 Zettelkasten — How One German Scholar Was So Freakishly Productive
 ==================================================================
 
